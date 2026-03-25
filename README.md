@@ -60,4 +60,3 @@ I have an engineering background combined with a master’s degree in strategic 
 
 ---
 
-✨ Fun fact: I enjoy translating complex data into clear, story-driven insights
